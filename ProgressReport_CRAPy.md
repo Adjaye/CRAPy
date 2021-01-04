@@ -3,7 +3,7 @@
 
 ## Progress: Monday 04 January, 2021
 
-	Adjaye:
+	Adjaye: Downloaded Fusion 360 and began researching and watching tutorials on how the application works.
 
 	Francesco:
 
